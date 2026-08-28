@@ -5,7 +5,7 @@ GMIM “BAIT-EL” KALASEY SATU
 Wilayah Mandolang Dua
 
 Dari:
-Pdt. HERLINA WORI, S.Th, M.AP
+Pdt. HERLINA MASYANI WORI, S.Th, M.AP
 Kepada:
 Pdt. MARJAM JANIS, M.Teol
 
